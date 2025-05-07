@@ -1,3 +1,3 @@
 # Talentotech
 Curso de ciberseguridad nivel explorador (básico)
-mañana subo los avances 😴
+Itamhar Daniel Barrios.
